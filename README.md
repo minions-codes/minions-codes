@@ -9,7 +9,7 @@
 
 - **Phone:** 6284802278
 - **E-mail:** [navnidhi1210@gmail.com](mailto:navnidhi1210@gmail.com)
-- **LinkedIn:** [linkedin.com/in/navnidhi](https://www.linkedin.com/in/navnidhi)
+- **LinkedIn:** [linkedin.com/in/nav-nidhi](https://www.linkedin.com/in/nav-nidhi)
 
 ## Skills
 
